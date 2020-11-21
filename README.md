@@ -1,9 +1,23 @@
 # silence-ca-pousse
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 14/11/2020
+
+Carole Tolila :  
+Plant lovers  
+Igor Josifovic (Auteur) Judith De Graaff (Auteur)  
+Eyrolles (Editeur)  
+https://www.editions-eyrolles.com/Livre/9782212678550/plant-lovers
+
+Stéphane Marie :  
+1000 conseils pour les jardiniers débutants et expérimentés  
+Luc Noël (Auteur)  
+Racine (Editeur)  
+https://www.racine.be/fr/1000-conseils-pour-les-jardiniers
+
 ### Emission 07/11/2020
 
-Carole Tolila :
+Carole Tolila :  
 Magazine Druidéesse  
 https://druideesse.fr/
 
