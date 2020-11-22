@@ -1,5 +1,19 @@
-# silence-ca-pousse
+# Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
+
+### Emission 21/11/2020
+
+Carole Tolila :  
+L'herbier fantastique  
+Lionel Hignard (Auteur) Camille Renversade (Auteur)  
+plume de carotte (Editeur)  
+https://www.plumedecarotte.com/l-herbier-fantastique.html
+
+Stéphane Marie :  
+Le champ d'en face  
+Laure Quoniam (Auteur)  
+Gourcuff Gradenigo (Editeur)  
+http://www.gourcuff-gradenigo.com/librairie/index.php?id_product=269&controller=product&id_lang=1
 
 ### Emission 14/11/2020
 
