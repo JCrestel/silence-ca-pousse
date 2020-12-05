@@ -1,6 +1,21 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+
+### Emission 28/11/2020
+
+**Carole Tolila :**  
+Dinette  
+Laetitia Dalbies (Auteur)  
+Eyrolles (Editeur)  
+https://www.editions-eyrolles.com/Livre/9782212679366/dinette
+
+**Stéphane Marie :**  
+Connaissances botaniques de base en un coup d'oeil
+Yann Frangiere (Auteur) Evelyne Kozlowski (Auteur) Gregor Kozlowski (Auteur) Nicolas Ruch (Auteur)
+ulmer (Editeur)
+https://www.editions-ulmer.fr/editions-ulmer/connaissances-botaniques-de-base-en-un-coup-d-oeil-40-familles-de-plantes-d-europe-centrale-756-cl.htm
+
 ### Emission 21/11/2020
 
 **Carole Tolila :**  
