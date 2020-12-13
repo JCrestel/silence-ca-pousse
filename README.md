@@ -1,6 +1,20 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 12/12/2020
+
+**Carole Tolila :**  
+Désirée  
+Mathilde Bignon (Auteur) Audrey Venant (Auteur) Masami Lavault (Auteur)     
+Tana éditions (Editeur)  
+https://www.lisez.com/livre-cartonne/desiree-techniques-florales-gateaux-denfance-horticulture-francaise-et-de-saison/9791030103571
+
+**Stéphane Marie :**  
+100 clés des parcs et jardins de Normandie  
+Jean-Marie Boëlle (Auteur)  
+Editions des falaises (Editeur)  
+http://editionsdesfalaises.fr/produit/100-cles-parcs-jardins-de-normandie/
+
 ### Emission 05/12/2020
 
 **Carole Tolila :**  
