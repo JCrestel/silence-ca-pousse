@@ -1,6 +1,33 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 16/01/2021
+
+**Carole Tolila :**  
+Les carnets de nature ludiques et poétiques  
+Stéphane Hette (Auteur) Marcello Pettineo (Auteur)      
+plume de carotte (Editeur)  
+https://www.plumedecarotte.com/les-carnets-de-nature-ludiques-et-poetiques.html
+
+**Stéphane Marie :**  
+Petite et grande histoire des légumes  
+Eric Birlouez (Auteur)  
+Éditions Quae (Editeur)  
+https://www.quae.com/produit/1648/9782759231973/petite-et-grande-histoire-des-legumes
+
+### Emission 09/01/2021
+
+**Carole Tolila :**  
+Collection : Le jardin de Juliette & Joséphine  
+Cécile Miraglio (Auteur)  
+https://www.lespetitszecolos.com/  
+
+**Stéphane Marie :**  
+Eco almanach chaque jour un écogeste  
+Laëtitia Crnkovic (Auteur)  
+Editions Ouest France (Editeur)  
+https://editions.ouest-france.fr/eco-almanach-chaque-jour-un-ecogeste-9782737383816.html
+
 ### Emission 12/12/2020
 
 **Carole Tolila :**  
