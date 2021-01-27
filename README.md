@@ -1,6 +1,20 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 23/01/2021
+
+**Carole Tolila :**  
+L'histoire de la première AMAP  
+Denise Vuillon (Auteur)      
+L'Harmattan (Editeur)  
+https://www.editions-harmattan.fr/index.asp?navig=catalogue&obj=livre&no=35173
+
+**Stéphane Marie :**  
+Le petit guide des explorateurs de la nature  
+ Sophie Padié (Auteur) Xavier Nitsch (Auteur) Thomas Launois (Auteur) Lise Herzog (Illustrateur)  
+First Éditions (Editeur)  
+https://www.lisez.com/ebook/le-petit-guide-des-explorateurs-de-la-nature/9782412065815
+
 ### Emission 16/01/2021
 
 **Carole Tolila :**  
