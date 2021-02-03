@@ -1,6 +1,20 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 30/01/2021
+
+**Carole Tolila :**  
+Happy Plantes, pour une santé au naturel  
+Amaya Calvo Valderrama (Auteur)  
+Éditions Leduc Pratique (Editeur)  
+https://happy-plantes.com/boutique/les-livres-damaya/happy-plantes-sante-au-naturel
+
+**Stéphane Marie :**  
+La forêt comestible  
+Damien Dekarz (Auteur)  
+Terran Editions (Editeur)  
+https://www.terran.fr/la-foret-comestible.html
+
 ### Emission 23/01/2021
 
 **Carole Tolila :**  
@@ -11,7 +25,7 @@ https://www.editions-harmattan.fr/index.asp?navig=catalogue&obj=livre&no=35173
 
 **Stéphane Marie :**  
 Le petit guide des explorateurs de la nature  
- Sophie Padié (Auteur) Xavier Nitsch (Auteur) Thomas Launois (Auteur) Lise Herzog (Illustrateur)  
+Sophie Padié (Auteur) Xavier Nitsch (Auteur) Thomas Launois (Auteur) Lise Herzog (Illustrateur)  
 First Éditions (Editeur)  
 https://www.lisez.com/ebook/le-petit-guide-des-explorateurs-de-la-nature/9782412065815
 
