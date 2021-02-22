@@ -3,11 +3,11 @@ Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
 ### Emission 20/02/2021
 
-Redifusion
+Rediffusion
 
 ### Emission 13/01/2021
 
-Redifusion
+Rediffusion
 
 ### Emission 06/02/2021
 
