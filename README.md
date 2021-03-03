@@ -1,6 +1,22 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+### Emission 27/02/2021
+
+**Carole Tolila :**  
+On va déguster l'Italie  
+François-Régis Gaudry (Auteur)  
+Marabout (Editeur)  
+https://www.marabout.com/va-deguster-litalie-9782501151801
+
+**Stéphane Marie :**  
+Aménager son jardin avec des matériaux recyclés  
+Wolfgang Grosser (Auteur) Peter Himmelhuber (Auteur)  
+ulmer (Editeur)  
+https://www.editions-ulmer.fr/editions-ulmer/amenager-son-jardin-avec-des-materiaux-recycles-exemples-et-projets-773-cl.htm
+
+
+
 ### Emission 20/02/2021
 
 Rediffusion
