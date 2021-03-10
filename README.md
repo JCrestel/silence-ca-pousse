@@ -1,6 +1,19 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+## Emission 06/03/2021
+
+**Carole Tolila :**  
+Monter sa microferme en Hydroponie, Bioponie et Aquaponie  
+Marion Sarlé (Auteur)  
+Auto édition  
+https://formations.lessourciers.com/le-livre-des-sourciers/
+
+**Stéphane Marie :**  
+Teropaïpaï (Jeu de société)  
+Dr. Jonquille & Mr. Ail (Editeur)  
+https://djma.fr/boutique/teropaipai
+
 ### Emission 27/02/2021
 
 **Carole Tolila :**  
@@ -14,8 +27,6 @@ Aménager son jardin avec des matériaux recyclés
 Wolfgang Grosser (Auteur) Peter Himmelhuber (Auteur)  
 ulmer (Editeur)  
 https://www.editions-ulmer.fr/editions-ulmer/amenager-son-jardin-avec-des-materiaux-recycles-exemples-et-projets-773-cl.htm
-
-
 
 ### Emission 20/02/2021
 
