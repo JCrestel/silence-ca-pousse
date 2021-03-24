@@ -1,6 +1,34 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+## Emission 20/03/2021
+
+**Carole Tolila :**  
+Vannerie zen  
+Sylvie Bégot (Auteur)  
+Eyrolles (Editeur)   
+https://www.eyrolles.com/Arts-Loisirs/Livre/vannerie-zen-9782212678802/
+
+**Stéphane Marie :**  
+herbier  
+Elisa Gallois (Auteur)  
+Éditions First (Editeur)  
+https://www.lisez.com/livre/lherbier-de-et-dieu-crea-carnet-inspirant-a-remplir/9782412063538
+
+## Emission 13/03/2021
+
+**Carole Tolila :**  
+Savons naturels  
+Alison Fleck (Auteur)  
+Editions Solar (Editeur)  
+https://www.lisez.com/livre-grand-format/savons-naturels/9782263170492
+
+**Stéphane Marie :**  
+Toutes les plantes belles en hiver  
+James Garnett (Auteur) Didier Willery (Auteur)  
+ulmer (Editeur)  
+https://www.editions-ulmer.fr/editions-ulmer/toutes-les-plantes-belles-en-hiver-710-cl.htm
+
 ## Emission 06/03/2021
 
 **Carole Tolila :**  
@@ -65,7 +93,7 @@ https://www.editions-harmattan.fr/index.asp?navig=catalogue&obj=livre&no=35173
 **Stéphane Marie :**  
 Le petit guide des explorateurs de la nature  
 Sophie Padié (Auteur) Xavier Nitsch (Auteur) Thomas Launois (Auteur) Lise Herzog (Illustrateur)  
-First Éditions (Editeur)  
+Éditions First (Editeur)  
 https://www.lisez.com/ebook/le-petit-guide-des-explorateurs-de-la-nature/9782412065815
 
 ### Emission 16/01/2021
