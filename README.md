@@ -9,11 +9,17 @@ Sylvie Bégot (Auteur)
 Eyrolles (Editeur)   
 https://www.eyrolles.com/Arts-Loisirs/Livre/vannerie-zen-9782212678802/
 
-**Stéphane Marie :**  
 herbier  
 Elisa Gallois (Auteur)  
 Éditions First (Editeur)  
 https://www.lisez.com/livre/lherbier-de-et-dieu-crea-carnet-inspirant-a-remplir/9782412063538
+
+**Stéphane Marie :**  
+
+L'étonnante vie des plantes  
+Rozenn Torquebiau (Auteur) Francis Hallé (Auteur)  
+Actes Sud Junior (Editeur)  
+https://www.actes-sud.fr/catalogue/jeunesse/letonnante-vie-des-plantes
 
 ## Emission 13/03/2021
 
