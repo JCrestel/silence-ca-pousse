@@ -1,6 +1,20 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+## Emission 27/03/2021
+
+**Carole Tolila :**  
+Mon balcon nourricier en permaculture  
+Valéry Tsimba (Auteur)  
+ulmer (Editeur)  
+https://www.editions-ulmer.fr/editions-ulmer/mon-balcon-nourricier-en-permaculture-des-recoltes-abondantes-sur-4-m--771-cl.htm
+
+**Stéphane Marie :**  
+Les Leçons du Rhône  
+Elisabeth Ayrault (Auteur) Camille Moirenc (Photographe)  
+Actes Sud (Editeur)  
+https://www.actes-sud.fr/catalogue/sciences-humaines-et-sociales-sciences/les-lecons-du-rhone
+   
 ## Emission 20/03/2021
 
 **Carole Tolila :**  
@@ -15,7 +29,6 @@ Elisa Gallois (Auteur)
 https://www.lisez.com/livre/lherbier-de-et-dieu-crea-carnet-inspirant-a-remplir/9782412063538
 
 **Stéphane Marie :**  
-
 L'étonnante vie des plantes  
 Rozenn Torquebiau (Auteur) Francis Hallé (Auteur)  
 Actes Sud Junior (Editeur)  
