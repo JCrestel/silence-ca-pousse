@@ -1,6 +1,19 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+## Emission 22/05/2021
+
+**Carole Tolila :**  
+Essentiel(s)  
+Catherine Kluger (Auteur) Guillaume Czerw (Photographe)  
+Editions de la Matinière (Editeur)  
+https://www.editionsdelamartiniere.fr/livres/essentiels/
+
+**Stéphane Marie :**  
+La vannerie avec des plantes sauvages  
+Christelle Bonnal (Auteur)  
+ulmer (Editeur)  
+http://www.editions-ulmer.fr/editions-ulmer/la-vannerie-avec-des-plantes-sauvages-784-cl.htm
 
 ## Emission 01/05/2021
 
@@ -250,6 +263,6 @@ https://druideesse.fr/
 
 **Stéphane Marie :**  
 Les jardins des Châteaux de la Loire  
-Barbara De Nicolay (Auteur) Hervé Lenain (Photographie)   
+Barbara De Nicolay (Auteur) Hervé Lenain (Photographe)   
 Eugen Ulmer Eds (Editeur)  
 https://www.editions-ulmer.fr/editions-ulmer/jardins-des-chateaux-de-la-loire-713-cl.htm
