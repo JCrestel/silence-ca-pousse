@@ -1,6 +1,36 @@
 # Silence, ça pousse !
 Liste des livres conseillés dans l'émission : Silence, ça pousse !
 
+
+## Emission 01/05/2021
+
+**Carole Tolila :**  
+La cuisine des arbres  
+Aurélie Valtat (Auteur)  
+ulmer (Editeur)  
+http://www.editions-ulmer.fr/editions-ulmer/la-cuisine-des-arbres-776-cl.htm
+
+**Stéphane Marie :**  
+Paysages. L'héritage de Le Nôtre  
+Chiara Santini (Auteur) Michel Audouy (Auteur)  
+Actes Sud (Editeur)  
+https://www.actes-sud.fr/catalogue/paysages-lheritage-de-le-notre  
+
+## Emission 17/04/2021
+
+**Carole Tolila :**  
+Permaculture  
+Julie Bernier (Auteur)  
+Editions Solar (Editeur)  
+https://www.lisez.com/livre-grand-format/permaculture/9782263173332  
+
+**Stéphane Marie :**  
+Mon jardin s'adapte au changement climatique  
+Pierre Nessmann (Auteur)  
+Delachaux et Niestle (Editeur)  
+https://www.delachauxetniestle.com/livre/mon-jardin-sadapte-au-changement-climatique  
+
+
 ## Emission 27/03/2021
 
 **Carole Tolila :**  
